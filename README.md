@@ -8,4 +8,4 @@ SB GXB
 
 ## HINT
 
-Everytime your post your blog, your will contribute '1PV' to my blog. Please do not delete the code.
+Every time your post your blog, your will contribute '1PV' to my blog. Please do not delete the code.
